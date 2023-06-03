@@ -1,0 +1,1 @@
+# AWSCloudPractitionerEssentialsSummaryy_part_1
